@@ -1,0 +1,2 @@
+# oktahedral
+bıdıbıdı
